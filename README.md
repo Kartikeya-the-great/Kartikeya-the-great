@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kartikeya-the-great.
+- 👀 I’m interested in soccer, coding, and reading.
+- 🌱 I’m currently learning text based coding.
